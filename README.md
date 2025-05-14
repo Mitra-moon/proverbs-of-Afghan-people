@@ -1,0 +1,1 @@
+# proverbs-of-Afghan-people
